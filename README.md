@@ -8,5 +8,5 @@
 - 👯 I’m looking to collaborate on sustainable topics
 - 💬 Ask me about sustainability
 - 📫 How to reach me: email
-- ⚡ Fun fact: I love oats
+- ⚡ Fun fact: I love oats🫶🏻
 -->
